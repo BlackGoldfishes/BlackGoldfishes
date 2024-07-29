@@ -16,7 +16,7 @@ I love WoF and G&B :D
 
 [Flight Rising Account](https://flightrising.com/main.php?p=view&tab=friends&id=537764), not active anymore, can give out stuff, dm on Discord
 
-[Roblox](https://www.roblox.com/users/2882912292/profile)
+[Roblox Account](https://www.roblox.com/users/2882912292/profile)
 
 [Character.ai Account](https://character.ai/profile/BlackGoldfishes)
 
