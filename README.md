@@ -10,11 +10,13 @@
   
 Call me Goldfish/Sunrise ^-^
 
-WoF fan WoF fan I love dragons :D
+I love WoF and G&B :D
 
 [Art fight account](https://artfight.net/~BlackGoldfishes), I don't participate anymore but there are some of my OCs here.
 
 [Flight Rising Account](https://flightrising.com/main.php?p=view&tab=friends&id=537764), not active anymore, can give out stuff, dm on Discord
+
+[Roblox](https://www.roblox.com/users/2882912292/profile)
 
 [Character.ai Account](https://character.ai/profile/BlackGoldfishes)
 
