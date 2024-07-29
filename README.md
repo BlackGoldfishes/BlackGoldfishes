@@ -1,16 +1,27 @@
-## Hi there 👋
+<p align="center">
+<img width="600" src="https://images.pexels.com/photos/2131828/pexels-photo-2131828.jpeg?auto=compress&cs=tinysrgb&w=1260&h=750&dpr=1" alt="Foosh">
+</p>
+<div style="position: relative; text-align: center;">
+<h2 align="center"> 
+ ${\textsf{\color{Gold}Hello!}}$
+</h2> 
 
-<!--
-**BlackGoldfishes/BlackGoldfishes** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="center">
+  
+Call me Goldfish/Sunrise ^-^
 
-Here are some ideas to get you started:
+WoF fan WoF fan I love dragons :D
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+[Art fight account](https://artfight.net/~BlackGoldfishes), I don't participate anymore but there are some of my OCs here.
+
+[Flight Rising Account](https://flightrising.com/main.php?p=view&tab=friends&id=537764), not active anymore, can give out stuff, dm on Discord
+
+[Character.ai Account](https://character.ai/profile/BlackGoldfishes)
+
+Discord is the same username as here!
+
+I draw a little lol
+
+Have a nice Day! :D
+
+</div>
