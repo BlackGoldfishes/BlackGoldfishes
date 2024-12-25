@@ -18,8 +18,6 @@ I love WoF and G&B :D
 
 [Roblox Account](https://www.roblox.com/users/2882912292/profile)
 
-[Character.ai Account](https://character.ai/profile/BlackGoldfishes)
-
 Discord is the same username as here!
 
 I draw a little lol
