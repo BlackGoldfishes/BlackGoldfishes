@@ -8,11 +8,9 @@
 
 <div align="center">
   
-Call me Goldfish/Sunrise ^-^
+Call me Sun/Goldfish ^-^
 
-I love WoF and G&B :D
-
-I am very shy and a little awkward, if I hover around your G&B cosplays on PT jsyk I really want to be friends <3
+I am very shy and a little awkward, if I hover around your G&B/BT cosplays on PT jsyk I really want to be friends <3
 
 [Art fight account](https://artfight.net/~BlackGoldfishes), I don't participate anymore but there are some of my OCs here.
 
