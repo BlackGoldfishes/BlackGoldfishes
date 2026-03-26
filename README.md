@@ -10,8 +10,6 @@
 
 BLOCK TALES DEMO 5 TOMORROW!!!1!!1!!!! Barfing crying throwing up block tales block tales i love you
 
-
-  
 Call me Sun/Sunrise
 
 [Art fight account](https://artfight.net/~BlackGoldfishes), I don't participate anymore but there are some of my OCs here.
@@ -25,5 +23,7 @@ Discord is the same username as here!
 I draw a little
 
 Have a nice Day! :D
+
+<img width="620" height="434" alt="drools" src="https://github.com/user-attachments/assets/c0366868-07ab-400f-8c83-c247dfb28888" />
 
 </div>
