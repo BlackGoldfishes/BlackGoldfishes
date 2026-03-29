@@ -25,7 +25,9 @@ I draw a little
 Have a nice Day! :D
 
 <img width="620" height="434" alt="drools" src="https://github.com/user-attachments/assets/c0366868-07ab-400f-8c83-c247dfb28888" />
+<br>
 <img width="112" height="131" alt="uwuuu" src="https://github.com/user-attachments/assets/f31e7ba7-cf56-4600-a8ed-1cc96960b903" />
+<img width="160" height="131" alt="bean" src="https://github.com/user-attachments/assets/a5591c39-06a0-4c34-b40b-a4ede716749a" />
 
 
 </div>
